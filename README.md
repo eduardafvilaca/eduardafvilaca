@@ -1,3 +1,3 @@
 ### Oie,eu me chamo Eduarda!😊
 
-Sou estudande de Desenvolvimento de Sistemas 🖥️
+Sou estudande do curso Tec.Desenvolvimento de Sistemas 🖥️
